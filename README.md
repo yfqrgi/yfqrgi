@@ -1,1 +1,1 @@
-# Hi there, I'm [Yusufjon]
+# Hi there, I'm Yusufjon
