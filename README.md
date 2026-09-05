@@ -2,4 +2,4 @@
 
 ### 📫 Connect with Me
 - **Email:** qoraboyevyusufjon9@gmail.com
-- **Instagram:** (#[yfqrgi](https://www.instagram.com/yfqrig))   
+- **Instagram:** [yfqrig](https://www.instagram.com/yfqrig)
