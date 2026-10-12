@@ -4,3 +4,4 @@
 - **Email:** qoraboyevyusufjon9@gmail.com
 - **Instagram:** [yfqrig](https://www.instagram.com/yfqrig)
 - **Discord:** yfjqr
+- **Telegram** [yfjqr](https://t.me/yfjqr)
